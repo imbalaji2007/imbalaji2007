@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @imbalaji2007
+- 👀 I’m interested in coding 
+- 🌱 I’m currently learning in Vel's Vidhyalaya. Ofcourse, im a school student 
+- 📫 How to reach me? You can dm me on ig (id:@im_balaji_2007):)
